@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @crandolph973
-- 👀 I’m interested in Qualiy Assurance, and Graphic Design
+- 👀 I’m interested in Quality Assurance and Graphic Design
 - 🌱 I’m currently learning
 - 📫 How to reach me: csrandolph@outlook.com
 
